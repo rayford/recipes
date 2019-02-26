@@ -44,6 +44,6 @@
     * If you tend to be spice averse, 1/2 the quantity to begin
   * Salt: I never needed to add salt — the pork & bacon are enough salting for me
   * I typically double the recipe and use two (2) slow cookers
-  *  _*Measure with your heart!*_ ... as long as you remember it all should fit in your slow cooker...
+  *  *Measure with your heart!* ... as long as you remember it all should fit in your slow cooker...
 
 

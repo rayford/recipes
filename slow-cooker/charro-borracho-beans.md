@@ -27,7 +27,7 @@
   * Rinse Beans and remove any dirt, stones , ugly pieces , etc. 
   * Soak Beans in covered dish of water in refrigerator overnight 
   * Drain water off pinto beans
-  * Put all ingredients ( *EXCEPT* beer & salt) in slow cooker
+  * Put all ingredients (_EXCEPT_ beer & salt) in slow cooker
   * Gently stir ingredients together 
   * Cook on low for 8 hours
   * Salt to taste 

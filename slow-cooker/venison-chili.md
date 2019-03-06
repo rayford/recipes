@@ -7,7 +7,7 @@
   * 1 yellow bell pepper, diced
   * 1 McCormick Chili Seasoning packet
   * 2-cups beef broth
-  * 10-oz can diced tomatoes with green chilis
+  * 10-oz can diced tomatoes with green chilies
   * 15-oz can black beans, drained
   * 15-oz can kidney beans, drained
   * 6-oz can tomato paste

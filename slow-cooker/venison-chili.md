@@ -2,7 +2,7 @@
 ## Ingredients
   * 1-lb ground venison
   * 1-cup white onion, diced
-  * 1 jalapeno, finely diced
+  * 1 jalapeno, diced
   * 1 anaheim pepper, diced
   * 1 yellow bell pepper, diced
   * 1 McCormick Chili Seasoning packet
@@ -18,7 +18,7 @@
 
 
 ## Directions
-  * Brown the venison in non-stick pan on medium heat; seasoning it with a sprinkling of salt, pepper, and onion powder
+  * Brown the venison in non-stick pan on medium heat; seasoning it with salt, pepper, and onion powder
   * Add browned venison to slow cooker
   * Add all ingredients to slow cooker and stir
   * Cook on low for 8hrs

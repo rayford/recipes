@@ -2,7 +2,7 @@
 ## Ingredients
   * 1-lb ground beef, brown & drain
     * or other ground meat
-  * 1-2 lb potatoes, cubed large
+  * 1-2 lb potatoes, cubed (~~ 1.5 - 2 inches)
   * 3-4 carrots, ~~1in. sliced
   * 1 onion, diced
   * 1 garlic clove, minced
